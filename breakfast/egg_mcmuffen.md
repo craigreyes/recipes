@@ -1,4 +1,7 @@
 ###recipe needs intense flavor
 
 
-ingredience goes here
+cured sweet beacon,
+tomato infused bread , 
+cheddar cheese 
+
